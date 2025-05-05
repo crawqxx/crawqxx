@@ -2,7 +2,7 @@
 
 hey, i'm just here having fun with code. 
 
-i'm a self-taught developer, and my pronouns are **they/them**.
+i'm a self-taught badass developer.
 
 ### things i work with:
 - **web stuff**: html, css, javascript
