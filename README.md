@@ -14,7 +14,7 @@ most of the stuff here is just me messing around for fun. they're not super fanc
 
 ### how to reach me:
 here are the best ways to contact me (from most used to least used):
-- [discord](https://discord.com/users/1302905329398321152) (or @cnxd)
+- [discord](https://discord.com/users/1302905329398321152) (or @cnaw)
 - [telegram](https://t.me/crawqxx)
 - [twitter](https://x.com/craww)
 - [snapchat](https://snapchat.com/add/crraaw)
